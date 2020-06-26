@@ -8,3 +8,4 @@ Oh Dae-Su wurde für 15 lange Jahre gefangen gehalten!
 ## Das ist sein Motto
 > Lache und die ganze Welt lacht mit Dir. Weine und Du weinst allein!
 <img src="https://images-na.ssl-images-amazon.com/images/I/513RI616d%2BL.jpg"/>
+Hui
